@@ -17,7 +17,7 @@ Welcome to Get Right Training Support. We're here to help you get the most out o
 
 ### Technical Support
 For technical issues or additional help:
-- Email: broganseier15@gmail.com
+- Email: broganseier21@gmail.com
 - Response Time: Within 24-48 hours
 
 ### App Version
